@@ -6,7 +6,7 @@ http://gesiji.pw
 
 http://xusiji.com 
 
-http://liusiji.com [备用]
+http://dusiji.com [备用]
 
 收藏下面地址发布页或发任意邮件到lsjdizhi@gmail.com,自动回复老司机视频最新地址
 
